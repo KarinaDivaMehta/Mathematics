@@ -1,0 +1,12 @@
+coefficients
+histogram
+contour
+modulus
+irrespective of
+hypotenuse
+commutative
+distributive over addition
+associativity
+neat
+nought
+transpose
